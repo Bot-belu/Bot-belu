@@ -1,3 +1,0 @@
-- 👋 Hi, I’m @Bot-belu
-- 👀 I’m interested in buy the bot
-- 📫 How to reach me https://wa.me/message/4LSBRS2VNOCQM1
